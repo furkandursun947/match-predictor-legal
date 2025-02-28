@@ -43,4 +43,4 @@ We may update this Privacy Policy from time to time. We will notify you of any c
 
 ### 7. Contact Us
 
-If you have questions about this Privacy Policy, please contact us at privacy@matchpredictorai.com
+If you have questions about this Privacy Policy, please contact us at matchpredictorai8@gmail.com
