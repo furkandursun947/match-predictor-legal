@@ -33,4 +33,4 @@ We reserve the right to modify these Terms at any time. Your continued use of th
 
 ### 6. Contact Us
 
-If you have any questions about these Terms, please contact us at support@matchpredictorai.com
+If you have any questions about these Terms, please contact us at matchpredictorai8@gmail.com
