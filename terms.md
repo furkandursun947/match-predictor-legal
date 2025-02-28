@@ -2,7 +2,7 @@
 
 ## Match Predictor AI Terms and Conditions
 
-Last updated: [Current Date]
+Last updated: 28 February 2025
 
 Please read these Terms of Use carefully before using the Match Predictor AI mobile application.
 
